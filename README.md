@@ -2,7 +2,7 @@
 - 👀 I’m interested in innovation, technology, discovery
 - 🌱 I’m currently learning computer engineering
 - 💞️ I’m looking to collaborate on interesting projects
-- 📫 How to reach me: gaetanoimprota02@gmail.com
+            - 📫 How to reach me: gaetanoimprota02@gmail.com or gaetano.improta1@studenti.unicampania.it
 - 😄 Pronouns: gae
 - ⚡ Fun fact: 
 
